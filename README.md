@@ -1,0 +1,1 @@
+# calculadoradeapoios2026
